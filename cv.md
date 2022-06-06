@@ -1,6 +1,6 @@
 **Olga Shcherbatykh**
 
----
+![photo](/2020-10-10-16-45-54.jpg)
 
 **Contacts:**
 
