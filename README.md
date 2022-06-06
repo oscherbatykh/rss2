@@ -1,1 +1,1 @@
-# rss2
+https://oscherbatykh.github.io/rss2/cv
